@@ -1,2 +1,0 @@
-# SE_EXPERIENTIAL_LEARNING
-Experiential learning
